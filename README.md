@@ -20,7 +20,7 @@ Thakshaka Rathnayake
  
 ©️2021 TeLe TiPs All Rights Reserved
  
-Powered by #AAQ forked by [@SCProjectsLK](https://t.me/SCProjectsLK)
+Powered by #AAQ forked by @SCProjectsLK
 ```
 
 ### ♨️VOTE OF THANKS
